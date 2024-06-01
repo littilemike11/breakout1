@@ -5,3 +5,5 @@ It was a dark and stormy night.. Three mischievous mice were up late, dining on 
 "I wonder if Donald finally made it.. he's been gone for hours!" said Mickey
 
 Tom get ups from his chair and scampers to the door. He tip toes to look through the peep hole.
+
+All of a sudden the door flinges open & a large cloud of smoke spreads into the room. Tom goes flying across the room. 
